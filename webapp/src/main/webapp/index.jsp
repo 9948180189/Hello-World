@@ -4,10 +4,6 @@
 <h1> Welcome to $ PAY SIKKA & Wishing you A Happy Deewali $$...<h1>
 <h1> Welcome to $ PAY SIKKA & Wishing you A Happy christmas2022 $$....<h1>
 <h1> Welcome to $ PAY SIKKA & Wishing you A Happy Newyear2023 *$%*...<h1>
-<h1> Welcome to $ PAY SIKKA & Wishing you A Happy Newyear2024 *$%*..<h1>
-<h1> Welcome to $ PAY SIKKA & Wishing you A Happy Newyear2025&2026 *$%*..<h1>
-<h1> Welcome to $ PAY SIKKA & Wishing you A Happy Newyear2025 *$%*..<h1>
-<h1> Welcome to $ PAY SIKKA & Wishing you A Happy Newyear2025&2027 *$%*..<h1>
 <h1> Welcome to $ PAY SIKKA & Wishing you A Happy Birthday *$%*..<h1>
 
 
